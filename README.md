@@ -5,4 +5,4 @@
 10122150 - Rasyid Halim
 
 Deskripsi:
-perjalanan menuju Taman Saturnus
+perjalanan menuju Bali
